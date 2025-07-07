@@ -21,4 +21,4 @@
 立即收藏本站，享受永久免费且高清的日本AV影片观看体验。无论您是喜欢无码高清还是剧情丰富的影片，这里都是您观看日本AV免费影片的首选平台！
 
 
-<span style="display:none;">[Canonical link] ( ）</span>
+<span style="display:none;">[Canonical link] ( https://github.com/dtnn2611dtn2611/00005 ）</span>
